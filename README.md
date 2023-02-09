@@ -1,1 +1,1 @@
-# 2022_-5G-Innovation-Pilot-Competition
+# 2022_5G-Innovation-Pilot-Competition
